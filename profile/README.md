@@ -1,4 +1,4 @@
-# Wink Mod APK – Premium Unlocked Video Editor for Enhanced Creativity**
+# Wink Mod APK – Premium Unlocked Video Editor for Enhanced Creativity
 
 ---
 
